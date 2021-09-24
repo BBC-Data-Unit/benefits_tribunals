@@ -52,7 +52,7 @@ Stories written by partners based on this research included:
 * Bristol Live: [DWP loses seven out of ten appeals against PIP and DLA disability benefit refusal](https://www.bristolpost.co.uk/news/uk-world-news/dwp-loses-seven-out-ten-5962842) *24 September 2021*
 * Nottinghamshire Live: [DWP loses seven out of ten appeals against PIP and DLA disability benefit refusal](https://www.nottinghampost.com/news/uk-world-news/dwp-loses-seven-out-ten-5962842) *24 September 2021*
 
-The story featured on [BBC Northern Ireland online](https://www.bbc.co.uk/news/uk-northern-ireland-58669854).
+The story featured on [BBC Northern Ireland online](https://www.bbc.co.uk/news/uk-northern-ireland-58669854) and it was also reported by BBC local radio stations covering Nottingham, Wiltshire and Humberside.
 
 ## Other usage
 
