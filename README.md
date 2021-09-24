@@ -48,3 +48,5 @@ Stories written by partners based on this research included:
 The story featured on [BBC Northern Ireland online](https://www.bbc.co.uk/news/uk-northern-ireland-58669854).
 
 ## Other usage
+
+* The Mirror: [293,000 disabled people have DWP's decision on PIP payments overturned in court](https://www.mirror.co.uk/money/court-rules-293000-disabled-people-25061602) *24 September 2021*
