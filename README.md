@@ -32,8 +32,14 @@ The data and background methodology released to partners are available here:
 
 ## Interviews and quotes
 
+* Kerry Jones, who won a tribunal appeal on behalf of her father Keith after his death. He had mouth cancer and was denied PIP after previously receiving DLA
+* David Smith, who won a tribunal on his behalf of his brother James Oliver after his death. James had chronic liver disease caused by alcohol dependency but was refused PIP 
+* Tom Pollard, who was formerly seconded from the charity MIND to the Department for Work and Pensions to be its senior mental health policy adviser between 2016 and 2018
+* Will Johnstone, policy manager (social policy and rights) from the charity Rethink Mental Illness
 * Daphne Hall, the vice chair of the National Association of Welfare Rights Advisers and rightsnet editor
+* Mark Jackson, policy and public affairs manager at the end of life charity Marie Curie
 * The Department for Work and Pensions
+* The Department for Communities in Northern Ireland 
 
 ## Partner usage
 
