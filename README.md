@@ -51,12 +51,14 @@ Stories written by partners based on this research included:
 * Scotland: The Press and Journal: [Around 60% of disability benefits appeals won in Scotland’s tribunal court](https://www.pressandjournal.co.uk/fp/news/aberdeen/3491224/around-60-of-disability-benefits-appeals-won-in-scotlands-tribunal-court/) *24 September 2021*
 * The Bolton News: [Bolton: Over 7,000 disabled people win appeals against benefit stoppages](https://www.theboltonnews.co.uk/news/19600422.bolton-7-000-disabled-people-win-appeals-benefit-stoppages/) *24 September 2021*
 * Liverpool World: [PIP payments: People increasingly winning appeals in Liverpool after being denied disability benefits](https://www.liverpoolworld.uk/news/pip-payments-people-increasingly-winning-appeals-in-liverpool-after-being-denied-disability-benefits-3394213) *24 September 2021*
+* London World: [PIP disability benefits: Four in five claimants win court battles with Government](https://www.londonworld.com/news/pip-disability-benefits-four-in-five-claimants-win-court-battles-with-government-3393997) *24 September 2021*
 * Manchester World: [PIP payments: People increasingly win appeals after being denied disability benefits in North West](https://www.manchesterworld.uk/news/pip-payments-people-increasingly-win-appeals-after-being-denied-disability-benefits-in-north-west-3394399) *24 September 2021*
 * Hampshire Chronicle: [Success for disability benefits as 16 out of 17 win appeal](https://www.hampshirechronicle.co.uk/news/19602966.16-17-win-disability-benefits-appeal/) *24 September 2021*
 * Somerset Live: [DWP loses seven out of ten appeals against PIP and DLA disability benefit refusal](https://www.somersetlive.co.uk/news/uk-world-news/dwp-loses-seven-out-ten-5962842) *24 September 2021*
 * Leicestershire Live: [DWP loses seven out of ten appeals against PIP and DLA disability benefit refusal](https://www.leicestermercury.co.uk/news/uk-world-news/dwp-loses-seven-out-ten-5962842) *24 September 2021*
 * Bristol Live: [DWP loses seven out of ten appeals against PIP and DLA disability benefit refusal](https://www.bristolpost.co.uk/news/uk-world-news/dwp-loses-seven-out-ten-5962842) *24 September 2021*
 * Nottinghamshire Live: [DWP loses seven out of ten appeals against PIP and DLA disability benefit refusal](https://www.nottinghampost.com/news/uk-world-news/dwp-loses-seven-out-ten-5962842) *24 September 2021*
+* Northern Ireland: View Digital: [Six out of every 10 appeals in Northern Ireland against a decision to deny disability benefits have been successful since 2019](https://viewdigital.org/six-out-of-every-10-appeals-in-northern-ireland-against-a-decision-to-deny-disability-benefits-have-been-successful-since-2019/) *24 September 2021*
 
 The story featured on [BBC Northern Ireland online](https://www.bbc.co.uk/news/uk-northern-ireland-58669854) and it was also reported by BBC local radio stations covering Nottingham, Wiltshire and Humberside.
 
