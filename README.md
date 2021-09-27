@@ -21,7 +21,8 @@ We analysed figures from from HM Courts and Tribunals Service, the Department fo
 Our analysis found:
 
 - In England, Scotland and Wales, seven in every 10 tribunal appeals about benefits had been successful since 2018
-- Over the same period, some 500 people died before their initial challenge, their Mandatory Reconsideration, was decided. A further 421 tribunal cases were abated (meaning progress halted) because the appellant had died and no appointee had yet been found to continue appeals.
+- Over the same period, some 500 people died before their initial challenge, their Mandatory Reconsideration, was decided
+- A further 421 tribunal cases in England, Scotland and Wales were abated (progress halted) because the appellant died and no appointee had yet been found to continue appeals
 - In Northern Ireland, six out of every 10 appeals were successful since 2019. Sixty appeals had been lodged on behalf of people who died since 2013
 
 ## Data and sources
